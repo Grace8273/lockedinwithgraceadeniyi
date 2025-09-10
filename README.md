@@ -1,3 +1,3 @@
 # Do all you can to make it.
-# lockedinwithgraceadeniyi
+# LockedIn with GRACE ADENIYI
 Stay disciplined with your goals
